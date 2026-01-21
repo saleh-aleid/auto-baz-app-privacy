@@ -35,6 +35,6 @@ We may update this Privacy Policy from time to time. Changes will be posted with
 
 ## Contact Us
 
-If you have any questions about this Privacy Policy, please contact us at: info@kgm.sa
+If you have any questions about this Privacy Policy, please contact us at: info@diot.com.sa
 
 For more information, please visit our website: https://ssangyongarabia.com/
